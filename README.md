@@ -1,0 +1,1 @@
+# AI-Powered-Smart-Farming-System-for-Real-Time-Monitoring-and-Predictive-Analysis
